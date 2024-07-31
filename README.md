@@ -7,6 +7,6 @@ Meu nome é Leandomn
 
 Você pode entrar em contato comigo📫
 
-alurastartestudante@gmail.com
+leandrolele1632@gamil.com
 
-@alurastartestudante
+@
